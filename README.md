@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @Kebanar2
-- 👀 I’m interested in searching a girl
-- 🌱 I’m currently learning byond language
-- 💞️ I’m looking to collaborate with cool girls
-- 📫 How to reach me in discord. My id - 292619161513754624
+  🌱 I’m currently learning byond language
+ 📫 How to reach me in discord. My id - 292619161513754624
 Or my username - 114926
 
 <!---
